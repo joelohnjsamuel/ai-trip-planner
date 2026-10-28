@@ -71,4 +71,4 @@ CHRIST (Deemed to be University), Bengaluru
 Expected graduation: 2027
 
 - LinkedIn: https://www.linkedin.com/in/joel-j-samuel-33026630a/
-- Email: jojohnofficial@gmail.com
+- Email: joeljohn1009@gmail.com
